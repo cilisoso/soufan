@@ -1,6 +1,8 @@
 <h2>搜番官网入口 - 专业的磁力链接搜索引擎最新网站网址</h2>
 <p>搜番是一个专为动漫爱好者设计的番剧搜索与追番工具，旨在帮助用户快速找到并追踪自己喜欢的动漫作品。它集合了各大动漫网站的资源，通过智能搜索算法，为用户提供全面、准确的动漫信息。无论是热门新番还是经典老番，用户都能在这里找到并轻松开始追番之旅。搜番不仅提供丰富的动漫资源，还设有社区互动功能，用户可以在这里交流心得、分享推荐，发现更多有趣的动漫话题。</p>
-<p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/sou-fan.html"><strong>搜番最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://soufan.litxdh.com"><strong>搜番最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>功能特点</strong></p>
 <p><strong>智能搜索</strong><br>用户可以通过关键词、作者、声优等多种方式搜索动漫作品，快速定位到目标内容。搜番的搜索算法能够精准匹配用户需求，提供高质量的搜索结果。</p>
 <p><strong>番剧推荐</strong><br>根据用户的观看历史和偏好，搜番会智能推荐相似或相关的动漫作品，帮助用户发现更多好番。</p>
